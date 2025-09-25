@@ -38,7 +38,7 @@ personalized to prospect’s needs.</p>
 <p>German  (Basic)</p>
 <p>Strategic and Social Sales</p>
 
-<p><b>Eucation</b></p>
+<p><b>Education</b></p>
 <hr>
 <p>Unicap - Brasil</p>
 <p>Journalism (Graduated)</p>
